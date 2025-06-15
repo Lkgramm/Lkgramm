@@ -84,5 +84,5 @@
 
 📬 Связь
 <p align="center"> <a href="https://t.me/Aleksei_ivanovskii" target="_blank"><img alt="Telegram" src="https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white"/></a> <a href="mailto:aleksei.ivanovskii@yandex.ru"><img alt="Email" src="https://img.shields.io/badge/email-D14836?style=for-the-badge&logo=gmail&logoColor=white"/></a> </p>
-<p align="center">🧑‍💻 Постоянно учусь, экспериментирую и продвигаю идеи в продакшн 🛠️</p> 
+<p align="center">🧑‍💻 Постоянно учусь и экспериментирую 🛠️</p> 
 <!-- readme end -->
