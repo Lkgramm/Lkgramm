@@ -1,1 +1,1 @@
-> "A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided." — Tony Robbins
+> "It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime." — Steve Maraboli
