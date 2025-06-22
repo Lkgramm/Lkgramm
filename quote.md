@@ -1,1 +1,1 @@
-> "The two most important days in your life are the day you are born and the day you find out why." — Mark Twain
+> "To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little." — Criss Jami
