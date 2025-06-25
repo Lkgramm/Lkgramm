@@ -1,1 +1,1 @@
-> "No great discovery was ever made without a bold guess. " — Isaac Newton
+> "Hope and fear come from feeling that we lack something; they come from a sense of poverty." — Pema Chodron
