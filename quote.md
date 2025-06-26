@@ -1,1 +1,1 @@
-> "Hope and fear come from feeling that we lack something; they come from a sense of poverty." — Pema Chodron
+> "The primary cause of unhappiness is never the situation but your thoughts about it." — Eckhart Tolle
