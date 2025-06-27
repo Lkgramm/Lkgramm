@@ -1,1 +1,1 @@
-> "The primary cause of unhappiness is never the situation but your thoughts about it." — Eckhart Tolle
+> "A rational person can find peace by cultivating indifference to things outside of their control." — Naval Ravikant
