@@ -1,1 +1,1 @@
-> "A rational person can find peace by cultivating indifference to things outside of their control." — Naval Ravikant
+> "Nature is pleased with simplicity. And nature is no dummy." — Isaac Newton
