@@ -1,1 +1,1 @@
-> "Nature is pleased with simplicity. And nature is no dummy." — Isaac Newton
+> "Change is hard at first, messy in the middle and gorgeous at the end." — Robin Sharma
