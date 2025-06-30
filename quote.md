@@ -1,1 +1,1 @@
-> "Change is hard at first, messy in the middle and gorgeous at the end." — Robin Sharma
+> "You're never too old for anything." — Betty White
