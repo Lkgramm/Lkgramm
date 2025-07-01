@@ -1,1 +1,1 @@
-> "You're never too old for anything." — Betty White
+> "Begin now to be what you will be hereafter." — St. Jerome
