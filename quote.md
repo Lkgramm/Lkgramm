@@ -1,1 +1,1 @@
-> "Begin now to be what you will be hereafter." — St. Jerome
+> "Just do the best you can. No one can do more than that." — John Wooden
