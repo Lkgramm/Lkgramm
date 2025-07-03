@@ -1,1 +1,1 @@
-> "Just do the best you can. No one can do more than that." — John Wooden
+> "No one can confidently say that he will still be living tomorrow." — Euripides
