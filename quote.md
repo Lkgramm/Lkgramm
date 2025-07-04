@@ -1,1 +1,1 @@
-> "No one can confidently say that he will still be living tomorrow." — Euripides
+> "Why compare yourself with others? No one in the entire world can do a better job of being you than you." — Unknown
