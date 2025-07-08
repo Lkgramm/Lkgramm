@@ -1,1 +1,1 @@
-> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you." — Peter Drucker
+> "In matters of style, swim with the current; in matters of principle, stand like a rock." — Thomas Jefferson
