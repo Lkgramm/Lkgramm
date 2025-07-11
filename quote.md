@@ -1,1 +1,1 @@
-> "Keep away from people who try to belittle your ambitions." — Mark Twain
+> "Life can be wonderful if you're not afraid of it." — Charlie Chaplin
