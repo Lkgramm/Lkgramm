@@ -1,1 +1,1 @@
-> "You can't wait for inspiration. You have to go after it with a club. " — Jack London
+> "The greatest weariness comes from work not done." — Eric Hoffer
