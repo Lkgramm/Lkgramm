@@ -1,1 +1,1 @@
-> "The greatest weariness comes from work not done." — Eric Hoffer
+> "The universe doesn't allow perfection." — Stephen Hawking
