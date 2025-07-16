@@ -1,1 +1,1 @@
-> "The universe doesn't allow perfection." — Stephen Hawking
+> "Leadership starts at the top." — Morgan Wootten
