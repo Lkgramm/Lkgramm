@@ -1,1 +1,1 @@
-> "Leadership starts at the top." — Morgan Wootten
+> "When you make a choice, you change the future." — Deepak Chopra
