@@ -1,1 +1,1 @@
-> "When you make a choice, you change the future." — Deepak Chopra
+> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday." — Brian Tracy
