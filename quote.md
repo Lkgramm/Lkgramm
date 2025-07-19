@@ -1,1 +1,1 @@
-> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday." — Brian Tracy
+> "Riches don't make a man rich, they only make him busier." — Christopher Columbus
