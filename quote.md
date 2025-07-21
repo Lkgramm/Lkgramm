@@ -1,1 +1,1 @@
-> "Success is achieved and maintained by those who try and keep trying. " — W. Clement Stone
+> "Tension is who you think you should be. Relaxation is who you are." — Chinese Proverb
