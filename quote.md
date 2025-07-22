@@ -1,1 +1,1 @@
-> "Tension is who you think you should be. Relaxation is who you are." — Chinese Proverb
+> "However difficult life may seem, there is always something you can do and succeed at." — Stephen Hawking
