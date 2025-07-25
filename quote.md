@@ -1,1 +1,1 @@
-> "Be happy now, without reason - or you never will be at all." — Dan Millman
+> "Whether you think you can or think you can't – you are right." — Henry Ford
