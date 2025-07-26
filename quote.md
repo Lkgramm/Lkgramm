@@ -1,1 +1,1 @@
-> "Whether you think you can or think you can't – you are right." — Henry Ford
+> "The sun shines upon good and bad alike." — Hans Christian Andersen
