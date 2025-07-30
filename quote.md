@@ -1,1 +1,1 @@
-> "Art, like morality, consists of drawing the line somewhere." — Gilbert Chesterton
+> "We win by helping each other win." — Jack Butcher
