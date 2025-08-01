@@ -1,1 +1,1 @@
-> "Happiness cannot be traveled to, owned, earned, worn or consumed." — Denis Waitley
+> "Give out what you most want to come back." — Robin Sharma
