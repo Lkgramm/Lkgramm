@@ -1,1 +1,1 @@
-> "The best way out is always through." — Robert Frost
+> "Anything you may hold firmly in your imagination can be yours." — William James
