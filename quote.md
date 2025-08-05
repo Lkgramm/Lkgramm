@@ -1,1 +1,1 @@
-> "Anything you may hold firmly in your imagination can be yours." — William James
+> "Work for something because it is good, not just because it stands a chance to succeed." — Vaclav Havel
