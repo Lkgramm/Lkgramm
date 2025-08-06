@@ -1,1 +1,1 @@
-> "Work for something because it is good, not just because it stands a chance to succeed." — Vaclav Havel
+> "What would life be if we had no courage to attempt anything? " — Vincent van Gogh
