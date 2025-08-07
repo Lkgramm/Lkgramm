@@ -1,1 +1,1 @@
-> "What would life be if we had no courage to attempt anything? " — Vincent van Gogh
+> "No valid plans for the future can be made by those who have no capacity for living now." — Alan Watts
