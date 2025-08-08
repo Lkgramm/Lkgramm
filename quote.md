@@ -1,1 +1,1 @@
-> "No valid plans for the future can be made by those who have no capacity for living now." — Alan Watts
+> "A needle is not sharp at both ends. " — Chinese Proverb
