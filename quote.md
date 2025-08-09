@@ -1,1 +1,1 @@
-> "A needle is not sharp at both ends. " — Chinese Proverb
+> "No duty is more urgent than that of returning thanks." — James Allen
