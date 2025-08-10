@@ -1,1 +1,1 @@
-> "No duty is more urgent than that of returning thanks." — James Allen
+> "Rudeness is the weak man's imitation of strength." — Eric Hoffer
