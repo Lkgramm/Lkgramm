@@ -1,1 +1,1 @@
-> "Rudeness is the weak man's imitation of strength." — Eric Hoffer
+> "You can have it all. You just can't have it all at once. " — Oprah Winfrey
