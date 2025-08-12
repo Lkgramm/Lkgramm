@@ -1,1 +1,1 @@
-> "You can have it all. You just can't have it all at once. " — Oprah Winfrey
+> "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends." — Deepak Chopra
