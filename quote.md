@@ -1,1 +1,1 @@
-> "The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends." — Deepak Chopra
+> "Change is hardest at the beginning, messiest in the middle and best at the end." — Robin Sharma
