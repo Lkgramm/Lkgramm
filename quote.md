@@ -1,1 +1,1 @@
-> "Change is hardest at the beginning, messiest in the middle and best at the end." — Robin Sharma
+> "Smile, breathe and go slowly." — Thich Nhat Hanh
