@@ -1,1 +1,1 @@
-> "Smile, breathe and go slowly." — Thich Nhat Hanh
+> "Success is liking yourself, liking what you do, and liking how you do it." — Maya Angelou
