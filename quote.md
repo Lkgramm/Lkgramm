@@ -1,1 +1,1 @@
-> "Success is liking yourself, liking what you do, and liking how you do it." — Maya Angelou
+> "The world makes way for the man who knows where he is going." — Ralph Waldo Emerson
