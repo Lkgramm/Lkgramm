@@ -1,1 +1,1 @@
-> "I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry." — Tony Robbins
+> "Consider the rights of others before your own feelings, and the feelings of others before your own rights." — John Wooden
