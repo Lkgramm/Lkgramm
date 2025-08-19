@@ -1,1 +1,1 @@
-> "Consider the rights of others before your own feelings, and the feelings of others before your own rights." — John Wooden
+> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it." — George Eliot
