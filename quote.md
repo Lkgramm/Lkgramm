@@ -1,1 +1,1 @@
-> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it." — George Eliot
+> "Happiness can be found, even in the darkest of times, if one only remembers to turn on the light." — Albus Dumbledore
