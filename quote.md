@@ -1,1 +1,1 @@
-> "Happiness can be found, even in the darkest of times, if one only remembers to turn on the light." — Albus Dumbledore
+> "At the center of your being you have the answer; you know who you are and you know what you want." — Lao Tzu
