@@ -1,1 +1,1 @@
-> "At the center of your being you have the answer; you know who you are and you know what you want." — Lao Tzu
+> "For fast-acting relief try slowing down." — Lily Tomlin
