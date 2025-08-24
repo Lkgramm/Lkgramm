@@ -1,1 +1,1 @@
-> "We take care of the future best by taking care of the present now." — Jon Kabat-Zinn
+> "To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace." — Morihei Ueshiba
