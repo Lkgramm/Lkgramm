@@ -1,1 +1,1 @@
-> "To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace." — Morihei Ueshiba
+> "A rational person can find peace by cultivating indifference to things outside of their control." — Naval Ravikant
