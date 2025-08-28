@@ -1,1 +1,1 @@
-> "Great loves too must be endured." — Coco Chanel
+> "Nothing has more strength than dire necessity." — Euripides
