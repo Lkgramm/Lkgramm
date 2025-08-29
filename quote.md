@@ -1,1 +1,1 @@
-> "Nothing has more strength than dire necessity." — Euripides
+> "Good judgment comes from experience, and experience comes from bad judgment." — Rita Mae Brown
