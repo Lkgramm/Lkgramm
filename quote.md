@@ -1,1 +1,1 @@
-> "Successful people tend to become more successful because they are always thinking about their successes." — Brian Tracy
+> "It is better to disappoint people with the truth than to appease them with a lie." — Simon Sinek
