@@ -1,1 +1,1 @@
-> "It is better to disappoint people with the truth than to appease them with a lie." — Simon Sinek
+> "Not all those who wander are lost." — J.R.R. Tolkien
