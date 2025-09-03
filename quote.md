@@ -1,1 +1,1 @@
-> "Not all those who wander are lost." — J.R.R. Tolkien
+> "I think self-awareness is probably the most important thing towards being a champion. " — Billie Jean King
