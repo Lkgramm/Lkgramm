@@ -1,1 +1,1 @@
-> "I think self-awareness is probably the most important thing towards being a champion. " — Billie Jean King
+> "Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?'" — Brian Tracy
