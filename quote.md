@@ -1,1 +1,1 @@
-> "Far more crucial than what we know or do not know is what we do not want to know." — Eric Hoffer
+> "Don't talk about what you have done or what you are going to do." — Thomas Jefferson
