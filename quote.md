@@ -1,1 +1,1 @@
-> "Don't talk about what you have done or what you are going to do." — Thomas Jefferson
+> "It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable." — Elon Musk
