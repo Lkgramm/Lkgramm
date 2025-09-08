@@ -1,1 +1,1 @@
-> "It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable." — Elon Musk
+> "The goal of an artist is to create the definitive work that cannot be surpassed." — George Bernard Shaw
