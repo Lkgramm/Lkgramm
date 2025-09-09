@@ -1,1 +1,1 @@
-> "The goal of an artist is to create the definitive work that cannot be surpassed." — George Bernard Shaw
+> "The quality of your life is determined by the quality of your thoughts." — Unknown
