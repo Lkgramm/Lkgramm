@@ -1,1 +1,1 @@
-> "The quality of your life is determined by the quality of your thoughts." — Unknown
+> "Charms strike the sight, but merit wins the soul." — Alexander Pope
