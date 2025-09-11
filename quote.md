@@ -1,1 +1,1 @@
-> "Charms strike the sight, but merit wins the soul." — Alexander Pope
+> "Life is the dancer and you are the dance." — Eckhart Tolle
