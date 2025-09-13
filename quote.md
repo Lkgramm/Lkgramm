@@ -1,1 +1,1 @@
-> "Make peace with your inner turmoil." — Unknown
+> "Once you learn to quit, it becomes a habit." — Vince Lombardi
