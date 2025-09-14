@@ -1,1 +1,1 @@
-> "Once you learn to quit, it becomes a habit." — Vince Lombardi
+> "Be true to yourself, help others, make each day your masterpiece" — John Wooden
