@@ -1,1 +1,1 @@
-> "Be true to yourself, help others, make each day your masterpiece" — John Wooden
+> "You can't go forward and backwards at the same time." — Steve Harvey
