@@ -1,1 +1,1 @@
-> "You can't go forward and backwards at the same time." — Steve Harvey
+> "Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you." — Jeffrey Gitomer
