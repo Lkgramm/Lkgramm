@@ -1,1 +1,1 @@
-> "Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you." — Jeffrey Gitomer
+> "The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone. " — Orison Swett Marden
