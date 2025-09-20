@@ -1,1 +1,1 @@
-> "Change begets change. Nothing propagates so fast." — Charles Dickens
+> "Most people dabble their way through life, never deciding to master anything in particular." — Tony Robbins
