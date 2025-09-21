@@ -1,1 +1,1 @@
-> "Most people dabble their way through life, never deciding to master anything in particular." — Tony Robbins
+> "Knowing yourself is the beginning of all wisdom." — Aristotle
