@@ -1,1 +1,1 @@
-> "Knowing yourself is the beginning of all wisdom." — Aristotle
+> "When you have a dream, you've got to grab it and never let go." — Carol Burnett
