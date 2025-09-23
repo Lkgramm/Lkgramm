@@ -1,1 +1,1 @@
-> "When you have a dream, you've got to grab it and never let go." — Carol Burnett
+> "Like it or not, this moment is all we really have to work with." — Jon Kabat-Zinn
