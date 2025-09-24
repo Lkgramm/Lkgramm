@@ -1,1 +1,1 @@
-> "Like it or not, this moment is all we really have to work with." — Jon Kabat-Zinn
+> "In order to be walked over, you have to be lying down." — Celestine Chua
