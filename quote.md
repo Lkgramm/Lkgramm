@@ -1,1 +1,1 @@
-> "In order to be walked over, you have to be lying down." — Celestine Chua
+> "A man's worth is no greater than his ambitions." — Marcus Aurelius
