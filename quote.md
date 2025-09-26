@@ -1,1 +1,1 @@
-> "A man's worth is no greater than his ambitions." — Marcus Aurelius
+> "We ordinary people must forge our own beauty." — Kenji Miyazawa
