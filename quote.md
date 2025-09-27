@@ -1,1 +1,1 @@
-> "We ordinary people must forge our own beauty." — Kenji Miyazawa
+> "It is in changing that we find purpose." — Heraclitus
