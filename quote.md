@@ -1,1 +1,1 @@
-> "It is in changing that we find purpose." — Heraclitus
+> "Obstacles are those frightful things you see when you take your eyes off your goals." — Sydney Smith
