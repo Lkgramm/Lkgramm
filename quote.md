@@ -1,1 +1,1 @@
-> "Obstacles are those frightful things you see when you take your eyes off your goals." — Sydney Smith
+> "In youth we run into difficulties. In old age difficulties run into us. " — Beverly Sills
