@@ -1,1 +1,1 @@
-> "The opposite of courage in our society is not cowardice... it is conformity." — Earl Nightingale
+> "It still holds true that man is most uniquely human when he turns obstacles into opportunities." — Eric Hoffer
