@@ -1,1 +1,1 @@
-> "It still holds true that man is most uniquely human when he turns obstacles into opportunities." — Eric Hoffer
+> "Those who seek the easy way do not seek the true way." — Dogen
