@@ -1,1 +1,1 @@
-> "Those who seek the easy way do not seek the true way." — Dogen
+> "Embody what you teach, and teach only what you have embodied." — Dan Millman
