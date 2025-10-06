@@ -1,1 +1,1 @@
-> "I've always tried to go a step past wherever people expected me to end up." — Beverly Sills
+> "Giving is living. If you stop wanting to give, there's nothing more to live for." — Audrey Hepburn
