@@ -1,1 +1,1 @@
-> "Giving is living. If you stop wanting to give, there's nothing more to live for." — Audrey Hepburn
+> "Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner." — Sonia Ricotti
