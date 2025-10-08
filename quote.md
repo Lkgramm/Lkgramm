@@ -1,1 +1,1 @@
-> "Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner." — Sonia Ricotti
+> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them." — Epictetus
