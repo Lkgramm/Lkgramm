@@ -1,1 +1,1 @@
-> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them." — Epictetus
+> "Nothing you do is going to matter that much in the long run. Don't take yourself so seriously." — Naval Ravikant
