@@ -1,1 +1,1 @@
-> "Nothing you do is going to matter that much in the long run. Don't take yourself so seriously." — Naval Ravikant
+> "It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose." — Ming-Dao Deng
