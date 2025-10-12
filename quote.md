@@ -1,1 +1,1 @@
-> "Fear of death is fear of the Unknown." — Adi Da Samraj
+> "The wisdom of life consists in the elimination of the nonessentials." — Lin Yutang
