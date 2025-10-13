@@ -1,1 +1,1 @@
-> "The wisdom of life consists in the elimination of the nonessentials." — Lin Yutang
+> "An investment in knowledge pays the best interest." — Benjamin Franklin
