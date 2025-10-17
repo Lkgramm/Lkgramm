@@ -1,1 +1,1 @@
-> "Far more crucial than what we know or do not know is what we do not want to know." — Eric Hoffer
+> "Live your life as an exclamation rather than an explanation." — Isaac Newton
