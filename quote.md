@@ -1,1 +1,1 @@
-> "The day is for honest men, the night for thieves." — Euripides
+> "Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff." — Kamal Ravikant
