@@ -1,1 +1,1 @@
-> "Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff." — Kamal Ravikant
+> "When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it." — Josh Waitzkin
