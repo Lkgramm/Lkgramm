@@ -1,1 +1,1 @@
-> "Everything you can imagine is real." — Pablo Picasso
+> "Adversity is the tempering of one's mettle. Without it, we cannot know any true meaning in our accomplishments." — Ming-Dao Deng
