@@ -1,1 +1,1 @@
-> "The best dreams happen when you're awake." — Cherie Gilderbloom
+> "The world only exists in your eyes. You can make it as big or as small as you want." — F. Scott Fitzgerald
