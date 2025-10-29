@@ -1,1 +1,1 @@
-> "What keeps life fascinating is the constant creativity of the soul." — Deepak Chopra
+> "A warrior does not give up what he loves, he finds the love in what he does." — Dan Millman
