@@ -1,1 +1,1 @@
-> "Whatever is begun in anger, ends in shame." — Benjamin Franklin
+> "Write to help yourself, publish to help others." — Jack Butcher
