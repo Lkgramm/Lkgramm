@@ -1,1 +1,1 @@
-> "Wheresoever you go, go with all your heart." — Confucius
+> "Man is affected not by events but by the view he takes of them.  " — Seneca
