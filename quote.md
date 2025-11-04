@@ -1,1 +1,1 @@
-> "Man is affected not by events but by the view he takes of them.  " — Seneca
+> "He that can have patience can have what he will." — Benjamin Franklin
