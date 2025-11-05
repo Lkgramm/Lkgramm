@@ -1,1 +1,1 @@
-> "He that can have patience can have what he will." — Benjamin Franklin
+> "Success is getting what you want. Happiness is wanting what you get." — Andrew Carnegie
