@@ -1,1 +1,1 @@
-> "Success is getting what you want. Happiness is wanting what you get." — Andrew Carnegie
+> "Keep your eyes on the stars, but remember to keep your feet on the ground." — Theodore Roosevelt
