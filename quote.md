@@ -1,1 +1,1 @@
-> "Keep your eyes on the stars, but remember to keep your feet on the ground." — Theodore Roosevelt
+> "Be gentle with yourself. Think less and feel more. Be as happy as you can. You only have this moment." — Dan Millman
