@@ -1,1 +1,1 @@
-> "Those who attain the middle Dominate the whole." — Ming-Dao Deng
+> "The person who never made a mistake never tried anything new." — Albert Einstein
