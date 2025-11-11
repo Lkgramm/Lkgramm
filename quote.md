@@ -1,1 +1,1 @@
-> "Knowledge is a treasure, but practice is the key to it." — Lao Tzu
+> "Live the moment for the moment." — Michael Jordan
