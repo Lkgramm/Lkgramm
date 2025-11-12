@@ -1,1 +1,1 @@
-> "Live the moment for the moment." — Michael Jordan
+> "Preoccupied with a single leaf you won't see the tree." — Unknown
