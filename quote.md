@@ -1,1 +1,1 @@
-> "Preoccupied with a single leaf you won't see the tree." — Unknown
+> "To be alive - is Power." — Emily Dickinson
