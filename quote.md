@@ -1,1 +1,1 @@
-> "To be alive - is Power." — Emily Dickinson
+> "It is better to light a single candle than to curse the darkness." — Eleanor Roosevelt
