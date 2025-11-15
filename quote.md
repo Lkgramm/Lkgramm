@@ -1,1 +1,1 @@
-> "It is better to light a single candle than to curse the darkness." — Eleanor Roosevelt
+> "Not all those who wander are lost." — J.R.R. Tolkien
