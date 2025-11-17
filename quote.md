@@ -1,1 +1,1 @@
-> "A man who dares to waste one hour of time has not discovered the value of life." — Charles Darwin
+> "Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control." — Maxime Lagace
