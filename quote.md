@@ -1,1 +1,1 @@
-> "You miss 100% of the shots you don't take." — Wayne Gretzky
+> "Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for." — Gurbaksh Chahal
