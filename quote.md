@@ -1,1 +1,1 @@
-> "Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for." — Gurbaksh Chahal
+> "Without struggle, no progress and no result. Every breaking of habit produces a change in the machine." — G.I. Gurdjieff
