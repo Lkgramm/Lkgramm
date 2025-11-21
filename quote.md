@@ -1,1 +1,1 @@
-> "Without struggle, no progress and no result. Every breaking of habit produces a change in the machine." — G.I. Gurdjieff
+> "Poverty and hardship are created by false thinking." — Bodhidharma
