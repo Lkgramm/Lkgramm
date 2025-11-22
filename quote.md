@@ -1,1 +1,1 @@
-> "Poverty and hardship are created by false thinking." — Bodhidharma
+> "Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for." — Gurbaksh Chahal
