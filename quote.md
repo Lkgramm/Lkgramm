@@ -1,1 +1,1 @@
-> "Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for." — Gurbaksh Chahal
+> "People rarely succeed unless they have fun in what they are doing." — Dale Carnegie
