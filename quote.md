@@ -1,1 +1,1 @@
-> "People rarely succeed unless they have fun in what they are doing." — Dale Carnegie
+> "At the end of the day, let there be no excuses, no explanations, no regrets." — Steve Maraboli
