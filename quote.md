@@ -1,1 +1,1 @@
-> "At the end of the day, let there be no excuses, no explanations, no regrets." — Steve Maraboli
+> "Be kind whenever possible. It is always possible." — Dalai Lama
