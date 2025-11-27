@@ -1,1 +1,1 @@
-> "Shoot for the moon. Even if you miss, you'll land among the stars." — Norman Vincent Peale
+> "People who say it cannot be done should not interrupt those who are doing it." — George Bernard Shaw
