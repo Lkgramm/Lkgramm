@@ -1,1 +1,1 @@
-> "People who say it cannot be done should not interrupt those who are doing it." — George Bernard Shaw
+> "Fortunate are those who take the first steps." — Paulo Coelho
