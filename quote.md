@@ -1,1 +1,1 @@
-> "You can have it all. You just can't have it all at once. " — Oprah Winfrey
+> "It is during our darkest moments that we must focus to see the light." — Aristotle
