@@ -1,1 +1,1 @@
-> "It is during our darkest moments that we must focus to see the light." — Aristotle
+> "Live simply, expect little, give much." — Norman Vincent Peale
