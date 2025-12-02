@@ -1,1 +1,1 @@
-> "Live simply, expect little, give much." — Norman Vincent Peale
+> "There can be no deep disappointment where there is not deep love." — Martin Luther King, Jr.
