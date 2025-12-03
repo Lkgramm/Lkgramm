@@ -1,1 +1,1 @@
-> "There can be no deep disappointment where there is not deep love." — Martin Luther King, Jr.
+> "Never spend your money before you have earned it." — Thomas Jefferson
