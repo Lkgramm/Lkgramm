@@ -1,1 +1,1 @@
-> "The greatest of all mistakes is to do nothing because you think you can only do a little.  " — Zig Ziglar
+> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  " — Wayne Dyer
