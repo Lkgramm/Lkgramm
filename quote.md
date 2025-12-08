@@ -1,1 +1,1 @@
-> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  " — Wayne Dyer
+> "Trust is built and maintained by many small actions over time." — Lolly Daskal
