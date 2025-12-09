@@ -1,1 +1,1 @@
-> "Trust is built and maintained by many small actions over time." — Lolly Daskal
+> "We can know only that we know nothing. And that is the highest degree of human wisdom." — Leo Tolstoy
