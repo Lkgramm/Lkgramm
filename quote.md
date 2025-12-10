@@ -1,1 +1,1 @@
-> "We can know only that we know nothing. And that is the highest degree of human wisdom." — Leo Tolstoy
+> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days." — Zig Ziglar
