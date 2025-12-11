@@ -1,1 +1,1 @@
-> "Lack of direction, not lack of time, is the problem. We all have twenty-four hour days." — Zig Ziglar
+> "Failure is simply the opportunity to begin again, this time more intelligently." — Henry Ford
