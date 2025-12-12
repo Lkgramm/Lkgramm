@@ -1,1 +1,1 @@
-> "Failure is simply the opportunity to begin again, this time more intelligently." — Henry Ford
+> "Most people spend more time and energy going around problems than in trying to solve them. " — Henry Ford
