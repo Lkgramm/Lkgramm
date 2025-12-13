@@ -1,1 +1,1 @@
-> "Most people spend more time and energy going around problems than in trying to solve them. " — Henry Ford
+> "Success is stumbling from failure to failure with no loss of enthusiasm." — Winston Churchill
