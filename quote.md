@@ -1,1 +1,1 @@
-> "Success is stumbling from failure to failure with no loss of enthusiasm." — Winston Churchill
+> "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard." — Colin Powell
