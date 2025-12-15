@@ -1,1 +1,1 @@
-> "Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard." — Colin Powell
+> "Your setback is just a setup for a comeback." — Steve Harvey
