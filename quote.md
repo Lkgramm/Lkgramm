@@ -1,1 +1,1 @@
-> "Your setback is just a setup for a comeback." — Steve Harvey
+> "Anger exceeding limits causes fear and excessive kindness eliminates respect." — Euripides
