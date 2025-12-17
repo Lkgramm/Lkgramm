@@ -1,1 +1,1 @@
-> "Anger exceeding limits causes fear and excessive kindness eliminates respect." — Euripides
+> "Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble." — Robert Greene
