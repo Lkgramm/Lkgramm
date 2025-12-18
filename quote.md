@@ -1,1 +1,1 @@
-> "Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble." — Robert Greene
+> "Courage is the price that life exacts for granting peace." — Amelia Earhart
