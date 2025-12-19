@@ -1,1 +1,1 @@
-> "Courage is the price that life exacts for granting peace." — Amelia Earhart
+> "Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. " — Lao Tzu
