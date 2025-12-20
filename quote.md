@@ -1,1 +1,1 @@
-> "Being deeply loved by someone gives you strength, while loving someone deeply gives you courage. " — Lao Tzu
+> "Wisdom is the oneness of mind that guides and permeates all things." — Heraclitus
