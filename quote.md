@@ -1,1 +1,1 @@
-> "Wisdom is the oneness of mind that guides and permeates all things." — Heraclitus
+> "Victims recite problems, leaders provide solutions." — Robin Sharma
