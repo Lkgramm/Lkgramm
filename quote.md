@@ -1,1 +1,1 @@
-> "Victims recite problems, leaders provide solutions." — Robin Sharma
+> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today." — Steve Maraboli
