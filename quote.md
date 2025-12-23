@@ -1,1 +1,1 @@
-> "Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today." — Steve Maraboli
+> "Progress comes to those who train and train; reliance on secret techniques will get you nowhere." — Morihei Ueshiba
