@@ -1,1 +1,1 @@
-> "Progress comes to those who train and train; reliance on secret techniques will get you nowhere." — Morihei Ueshiba
+> "A heart is not judged by how much you love, but by how much you are loved by others." — Judy Garland
