@@ -1,1 +1,1 @@
-> "A heart is not judged by how much you love, but by how much you are loved by others." — Judy Garland
+> "To affect the quality of the day, that is the highest of arts." — Henry David Thoreau
