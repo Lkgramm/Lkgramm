@@ -1,1 +1,1 @@
-> "To affect the quality of the day, that is the highest of arts." — Henry David Thoreau
+> "Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage." — Celestine Chua
