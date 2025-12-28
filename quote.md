@@ -1,1 +1,1 @@
-> "You have to make time, even for something as universal as staring at the stars." — W.P. Kinsella
+> "The most important thing is to enjoy your life, to be happy, it's all that matters." — Audrey Hepburn
