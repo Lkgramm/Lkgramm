@@ -1,1 +1,1 @@
-> "The most important thing is to enjoy your life, to be happy, it's all that matters." — Audrey Hepburn
+> "Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored." — Earl Nightingale
