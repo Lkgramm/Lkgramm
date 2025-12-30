@@ -1,1 +1,1 @@
-> "Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored." — Earl Nightingale
+> "A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road." — Henry Ward Beecher
