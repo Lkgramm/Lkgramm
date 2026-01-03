@@ -1,1 +1,1 @@
-> "To be totally at leisure for one day is to be immortal for one day. " — Chinese Proverb
+> "Be kind, for everyone you meet is fighting a harder battle." — Plato
