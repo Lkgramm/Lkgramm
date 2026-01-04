@@ -1,1 +1,1 @@
-> "Be kind, for everyone you meet is fighting a harder battle." — Plato
+> "People seldom do what they believe in. They do what is convenient, then repent." — Bob Dylan
