@@ -1,1 +1,1 @@
-> "People seldom do what they believe in. They do what is convenient, then repent." — Bob Dylan
+> "The more you extend kindness to yourself, the more it will become your automatic response to others." — Wayne Dyer
