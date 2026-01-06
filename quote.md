@@ -1,1 +1,1 @@
-> "The more you extend kindness to yourself, the more it will become your automatic response to others." — Wayne Dyer
+> "The first rule of business; treat others like they want to treat you." — Charles Dickens
