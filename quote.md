@@ -1,1 +1,1 @@
-> "The first rule of business; treat others like they want to treat you." — Charles Dickens
+> "Follow the man who seeks the truth; run from the man who has found it." — Vaclav Havel
