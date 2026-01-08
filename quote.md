@@ -1,1 +1,1 @@
-> "Follow the man who seeks the truth; run from the man who has found it." — Vaclav Havel
+> "The only real mistake is the one from which we learn nothing. " — Henry Ford
