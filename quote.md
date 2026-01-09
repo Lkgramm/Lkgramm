@@ -1,1 +1,1 @@
-> "The only real mistake is the one from which we learn nothing. " — Henry Ford
+> "You will never do anything in this world without courage. It is the greatest quality of the mind next to honor." — James Allen
