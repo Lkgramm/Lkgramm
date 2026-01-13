@@ -1,1 +1,1 @@
-> "A man is literally what he thinks." — James Allen
+> "If you are unable to find the truth right where you are, where else do you expect to find it?" — Dogen
