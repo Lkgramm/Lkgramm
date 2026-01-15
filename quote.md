@@ -1,1 +1,1 @@
-> "A journey of a thousand miles begins with a single step." — Lao Tzu
+> "Continuous effort - not strength or intelligence - is the key to unlocking our potential." — Winston Churchill
