@@ -1,1 +1,1 @@
-> "Continuous effort - not strength or intelligence - is the key to unlocking our potential." — Winston Churchill
+> "We run to win, not just to be in the race.  " — Vince Lombardi
