@@ -1,1 +1,1 @@
-> "Nothing is too high for a man to reach, but he must climb with care and confidence" — Hans Christian Andersen
+> "Those who realize their folly are not true fools." — Zhuangzi
