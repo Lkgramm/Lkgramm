@@ -1,1 +1,1 @@
-> "Nothing we see or hear is perfect. But right there in the imperfection is perfect reality." — Shunryu Suzuki
+> "Listen to what you know instead of what you fear." — Richard Bach
