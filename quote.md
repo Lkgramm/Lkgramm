@@ -1,1 +1,1 @@
-> "The more you are motivated by Love, The more Fearless & Free your action will be." — Dalai Lama
+> "Knowledge is learning something everyday. Wisdom is letting go of something everyday." — Unknown
