@@ -1,1 +1,1 @@
-> "Knowledge is learning something everyday. Wisdom is letting go of something everyday." — Unknown
+> "The eyes of others our prisons; their thoughts our cages." — Virginia Woolf
