@@ -1,1 +1,1 @@
-> "The eyes of others our prisons; their thoughts our cages." — Virginia Woolf
+> "The strength of a wall is neither greater nor less than the courage of the men who defend it. " — Genghis Khan
