@@ -1,1 +1,1 @@
-> "The strength of a wall is neither greater nor less than the courage of the men who defend it. " — Genghis Khan
+> "Every second you have on this planet is very precious and it's your responsibility that you're happy." — Naval Ravikant
