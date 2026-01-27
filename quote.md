@@ -1,1 +1,1 @@
-> "Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.  " — Wayne Dyer
+> "Public opinion is the worst of all opinions." — Nicolas Chamfort
