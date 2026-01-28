@@ -1,1 +1,1 @@
-> "Public opinion is the worst of all opinions." — Nicolas Chamfort
+> "No idea, no matter how good, will work if it doesn't get used." — Peter A. Cohen
