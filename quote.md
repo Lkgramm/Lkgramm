@@ -1,1 +1,1 @@
-> "No idea, no matter how good, will work if it doesn't get used." — Peter A. Cohen
+> "Some of us learn from other people's mistakes and the rest of us have to be other people.  " — Zig Ziglar
