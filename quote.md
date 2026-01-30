@@ -1,1 +1,1 @@
-> "Some of us learn from other people's mistakes and the rest of us have to be other people.  " — Zig Ziglar
+> "He who knows, does not speak. He who speaks, does not know." — Lao Tzu
