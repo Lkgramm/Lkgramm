@@ -1,1 +1,1 @@
-> "When you have to make a choice and don't make it, that is in itself a choice." — William James
+> "If you spend too much time thinking about a thing, you'll never get it done. " — Bruce Lee
