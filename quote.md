@@ -1,1 +1,1 @@
-> "If you spend too much time thinking about a thing, you'll never get it done. " — Bruce Lee
+> "Make your stand today. On this spot. On this day." — Ming-Dao Deng
