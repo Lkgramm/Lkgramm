@@ -1,1 +1,1 @@
-> "Make your stand today. On this spot. On this day." — Ming-Dao Deng
+> "Do not look for approval except for the consciousness of doing your best." — Andrew Carnegie
