@@ -1,1 +1,1 @@
-> "Do not look for approval except for the consciousness of doing your best." — Andrew Carnegie
+> "Love doesn't need reason. It speaks from the irrational wisdom of the heart." — Deepak Chopra
