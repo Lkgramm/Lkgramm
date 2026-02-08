@@ -1,1 +1,1 @@
-> "Love doesn't need reason. It speaks from the irrational wisdom of the heart." — Deepak Chopra
+> "Only the hand that erases can write the true thing." — Meister Eckhart
