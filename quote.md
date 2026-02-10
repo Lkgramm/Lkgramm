@@ -1,1 +1,1 @@
-> "The mind is the limit." — Arnold Schwarzenegger
+> "The way out is in." — Thich Nhat Hanh
