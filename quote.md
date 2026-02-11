@@ -1,1 +1,1 @@
-> "The way out is in." — Thich Nhat Hanh
+> "Go for it now. The future is promised to no one. " — Wayne Dyer
