@@ -1,1 +1,1 @@
-> "Go for it now. The future is promised to no one. " — Wayne Dyer
+> "Life is a question and how we live it is our answer." — Gary Keller
