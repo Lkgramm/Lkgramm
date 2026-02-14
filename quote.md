@@ -1,1 +1,1 @@
-> "We ordinary people must forge our own beauty." — Kenji Miyazawa
+> "Cleverness is not wisdom." — Euripides
