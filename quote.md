@@ -1,1 +1,1 @@
-> "Cleverness is not wisdom." — Euripides
+> "Follow your heart, listen to your inner voice, stop caring about what others think." — Roy T. Bennett
