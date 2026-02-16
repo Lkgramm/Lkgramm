@@ -1,1 +1,1 @@
-> "Follow your heart, listen to your inner voice, stop caring about what others think." — Roy T. Bennett
+> "You'll get more from being a peacemaker than a warrior." — Arnold Schwarzenegger
