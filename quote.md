@@ -1,1 +1,1 @@
-> "You'll get more from being a peacemaker than a warrior." — Arnold Schwarzenegger
+> "On the other side of the clouds is a bright blue sky." — Unknown
