@@ -1,1 +1,1 @@
-> "Thinking is the hardest work there is, which is probably the reason why so few engage in it." — Henry Ford
+> "Life is love and love is life." — Elvis Presley
