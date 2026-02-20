@@ -1,1 +1,1 @@
-> "Life is love and love is life." — Elvis Presley
+> "It is not enough to win a war; it is more important to organize the peace." — Aristotle
