@@ -1,1 +1,1 @@
-> "It is not enough to win a war; it is more important to organize the peace." — Aristotle
+> "Fears are nothing more than a state of mind." — Napoleon Hill
