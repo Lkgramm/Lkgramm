@@ -1,1 +1,1 @@
-> "Fears are nothing more than a state of mind." — Napoleon Hill
+> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results." — Tony Robbins
