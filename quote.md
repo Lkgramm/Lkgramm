@@ -1,1 +1,1 @@
-> "If life were predictable it would cease to be life, and be without flavor." — Eleanor Roosevelt
+> "The best revenge is to be unlike him who performed the injury." — Marcus Aurelius
