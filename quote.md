@@ -1,1 +1,1 @@
-> "The best revenge is to be unlike him who performed the injury." — Marcus Aurelius
+> "Develop success from failures. Discouragement and failure are two of the surest stepping stones to success." — Dale Carnegie
