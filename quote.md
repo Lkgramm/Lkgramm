@@ -1,1 +1,1 @@
-> "Develop success from failures. Discouragement and failure are two of the surest stepping stones to success." — Dale Carnegie
+> "Happiness depends on your mindset and attitude." — Roy T. Bennett
