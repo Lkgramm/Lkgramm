@@ -1,1 +1,1 @@
-> "The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence." — Josh Waitzkin
+> "Information changes your mind. Action changes your circumstances." — Jack Butcher
