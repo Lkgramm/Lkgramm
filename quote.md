@@ -1,1 +1,1 @@
-> "Information changes your mind. Action changes your circumstances." — Jack Butcher
+> "Wrong does not cease to be wrong because the majority share in it." — Leo Tolstoy
