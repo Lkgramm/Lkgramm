@@ -1,1 +1,1 @@
-> "Wrong does not cease to be wrong because the majority share in it." — Leo Tolstoy
+> "Note that this journey is uniquely yours, no one elses. So the path has to be your own." — Jon Kabat-Zinn
