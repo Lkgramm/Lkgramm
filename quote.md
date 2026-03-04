@@ -1,1 +1,1 @@
-> "Note that this journey is uniquely yours, no one elses. So the path has to be your own." — Jon Kabat-Zinn
+> "The secret of life isn't what happens to you, but what you do with what happens to you." — Norman Vincent Peale
