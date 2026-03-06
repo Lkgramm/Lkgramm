@@ -1,1 +1,1 @@
-> "Live as if you were to die tomorrow. Learn as if you were to live forever." — Mahatma Gandhi
+> "We will outstretch the hand if you unclench your fist." — Barack Obama
