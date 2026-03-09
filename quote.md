@@ -1,1 +1,1 @@
-> "The world would go on even without you. Don't take yourself so seriously." — Norman Vincent Peale
+> "I didn't get there by wishing for it or hoping for it, but by working for it." — Estee Lauder
