@@ -1,1 +1,1 @@
-> "Have a vision. Be demanding." — Colin Powell
+> "No snowflake ever falls in the wrong place." — Zen Proverb
