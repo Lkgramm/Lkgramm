@@ -1,1 +1,1 @@
-> "No snowflake ever falls in the wrong place." — Zen Proverb
+> "Enjoy when you can, and endure when you must." — Johann Wolfgang von Goethe
