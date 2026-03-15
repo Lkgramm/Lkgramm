@@ -1,1 +1,1 @@
-> "Patience is bitter, but its fruit is sweet." — Aristotle
+> "Give a girl the right shoes, and she can conquer the world." — Bette Midler
