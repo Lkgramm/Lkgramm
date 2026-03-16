@@ -1,1 +1,1 @@
-> "Give a girl the right shoes, and she can conquer the world." — Bette Midler
+> "Wealth consists not in having great possessions, but in having few wants." — Epictetus
