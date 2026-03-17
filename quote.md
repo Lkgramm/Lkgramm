@@ -1,1 +1,1 @@
-> "Wealth consists not in having great possessions, but in having few wants." — Epictetus
+> "We live only now. Everything else is either passed or is unknown." — Marcus Aurelius
