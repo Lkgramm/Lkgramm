@@ -1,1 +1,1 @@
-> "We live only now. Everything else is either passed or is unknown." — Marcus Aurelius
+> "Know the rules well, so you can break them effectively." — Dalai Lama
