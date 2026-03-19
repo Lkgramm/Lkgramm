@@ -1,1 +1,1 @@
-> "Know the rules well, so you can break them effectively." — Dalai Lama
+> "Best be yourself, imperial, plain, and true." — Robert Browning
