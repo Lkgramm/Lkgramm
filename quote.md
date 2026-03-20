@@ -1,1 +1,1 @@
-> "Best be yourself, imperial, plain, and true." — Robert Browning
+> "The best way to find yourself is to lose yourself in the service of others." — Mahatma Gandhi
