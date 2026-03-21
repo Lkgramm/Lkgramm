@@ -1,1 +1,1 @@
-> "The best way to find yourself is to lose yourself in the service of others." — Mahatma Gandhi
+> "Try to be a rainbow in someone's cloud." — Maya Angelou
