@@ -1,1 +1,1 @@
-> "Try to be a rainbow in someone's cloud." — Maya Angelou
+> "Get busy living, or get busy dying." — Stephen King
