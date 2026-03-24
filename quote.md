@@ -1,1 +1,1 @@
-> "Just as true humor is laughter at oneself, true humanity is knowledge of oneself." — Alan Watts
+> "Man's character is his fate." — Heraclitus
