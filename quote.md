@@ -1,1 +1,1 @@
-> "Man's character is his fate." — Heraclitus
+> "It's better to dance than to march through life." — Yoko Ono
