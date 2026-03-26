@@ -1,1 +1,1 @@
-> "It's better to dance than to march through life." — Yoko Ono
+> "You gain strength, courage and confidence by every experience in which you really stop to look fear in the face." — Eleanor Roosevelt
