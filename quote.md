@@ -1,1 +1,1 @@
-> "The desire for more positive experience is itself a negative experience." — Mark Manson
+> "You don't need a weatherman to know which way the wind blows." — Bob Dylan
