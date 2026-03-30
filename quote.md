@@ -1,1 +1,1 @@
-> "You don't need a weatherman to know which way the wind blows." — Bob Dylan
+> "What you do today can improve all your tomorrows." — Ralph Marston
