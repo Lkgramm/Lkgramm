@@ -1,1 +1,1 @@
-> "What you do today can improve all your tomorrows." — Ralph Marston
+> "Confidence comes not from always being right but not fearing to be wrong." — Unknown
