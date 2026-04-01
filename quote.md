@@ -1,1 +1,1 @@
-> "Confidence comes not from always being right but not fearing to be wrong." — Unknown
+> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength." — Criss Jami
