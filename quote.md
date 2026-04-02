@@ -1,1 +1,1 @@
-> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength." — Criss Jami
+> "Your gift is something that you can do innately better than anything else." — Steve Harvey
