@@ -1,1 +1,1 @@
-> "A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy." — Norman Vincent Peale
+> "It's not what you've got; it's what you do that makes the difference." — Celestine Chua
