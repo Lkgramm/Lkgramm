@@ -1,1 +1,1 @@
-> "A man who dares to waste one hour of time has not discovered the value of life." — Charles Darwin
+> "My instinct is always to seek out challenges as opposed to avoiding them." — Josh Waitzkin
