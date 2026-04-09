@@ -1,1 +1,1 @@
-> "When you judge another, you do not define them, you define yourself" — Wayne Dyer
+> "Give so much away people insist on paying you." — Jack Butcher
