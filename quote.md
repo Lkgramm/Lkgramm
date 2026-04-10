@@ -1,1 +1,1 @@
-> "Give so much away people insist on paying you." — Jack Butcher
+> "So we beat on, boats against the current, borne back ceaselessly into the past." — F. Scott Fitzgerald
