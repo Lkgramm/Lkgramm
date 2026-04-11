@@ -1,1 +1,1 @@
-> "So we beat on, boats against the current, borne back ceaselessly into the past." — F. Scott Fitzgerald
+> "To lead the people, walk behind them." — Lao Tzu
