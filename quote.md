@@ -1,1 +1,1 @@
-> "To lead the people, walk behind them." — Lao Tzu
+> "If you don't program yourself, life will program you." — Les Brown
