@@ -1,1 +1,1 @@
-> "If you don't program yourself, life will program you." — Les Brown
+> "Keep your dreams, you never know when you might need them." — Carlos Ruiz Zafon
