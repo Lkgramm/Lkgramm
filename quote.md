@@ -1,1 +1,1 @@
-> "Freedom itself demands discomfort." — Mark Manson
+> "Time heals what reason cannot.  " — Seneca
