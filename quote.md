@@ -1,1 +1,1 @@
-> "Don't give up on your dreams, or your dreams will give up on you." — John Wooden
+> "Don't explain your philosophy. Embody it." — Epictetus
