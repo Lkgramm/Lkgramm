@@ -1,1 +1,1 @@
-> "Don't explain your philosophy. Embody it." — Epictetus
+> "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next." — Herbert Hoover
