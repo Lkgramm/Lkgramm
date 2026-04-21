@@ -1,1 +1,1 @@
-> "Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next." — Herbert Hoover
+> "Presents are made for the pleasure of who gives them, not the merits of who receives them." — Carlos Ruiz Zafon
