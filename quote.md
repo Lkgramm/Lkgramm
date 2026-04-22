@@ -1,1 +1,1 @@
-> "Presents are made for the pleasure of who gives them, not the merits of who receives them." — Carlos Ruiz Zafon
+> "Eighty percent of success is showing up. " — Woody Allen
