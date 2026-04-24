@@ -1,1 +1,1 @@
-> "One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy." — Elon Musk
+> "I'm an optimist by choice not by stupidity." — Yanni
