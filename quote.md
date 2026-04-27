@@ -1,1 +1,1 @@
-> "Life and death are of supreme importance. Time swiftly passes by and opportunity is lost." — Dogen
+> "The less you open your heart to others, the more your heart suffers." — Deepak Chopra
