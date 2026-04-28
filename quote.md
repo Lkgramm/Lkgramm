@@ -1,1 +1,1 @@
-> "The less you open your heart to others, the more your heart suffers." — Deepak Chopra
+> "Winning isn't everything, but wanting to win is." — Vince Lombardi
