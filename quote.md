@@ -1,1 +1,1 @@
-> "Winning isn't everything, but wanting to win is." — Vince Lombardi
+> "Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry." — Celestine Chua
