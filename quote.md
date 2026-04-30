@@ -1,1 +1,1 @@
-> "Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry." — Celestine Chua
+> "Muddy water is best cleared by leaving it alone." — Alan Watts
