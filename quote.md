@@ -1,1 +1,1 @@
-> "Muddy water is best cleared by leaving it alone." — Alan Watts
+> "Give a girl the right shoes, and she can conquer the world." — Bette Midler
