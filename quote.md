@@ -1,1 +1,1 @@
-> "Give a girl the right shoes, and she can conquer the world." — Bette Midler
+> "Love is the energy of life." — Robert Browning
