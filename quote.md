@@ -1,1 +1,1 @@
-> "Wise men speak because they have something to say; Fools because they have to say something." — Plato
+> "Trusting our intuition often saves us from disaster. " — Anne Wilson Schaef
