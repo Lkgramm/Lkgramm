@@ -1,1 +1,1 @@
-> "Trusting our intuition often saves us from disaster. " — Anne Wilson Schaef
+> "If you can handle rejection, you'll learn to get everything you want." — Tony Robbins
