@@ -1,1 +1,1 @@
-> "If you can handle rejection, you'll learn to get everything you want." — Tony Robbins
+> "Success is achieved and maintained by those who try and keep trying. " — W. Clement Stone
