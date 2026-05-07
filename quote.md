@@ -1,1 +1,1 @@
-> "Success is achieved and maintained by those who try and keep trying. " — W. Clement Stone
+> "A golden cage is still just a cage." — Anita Krizzan
