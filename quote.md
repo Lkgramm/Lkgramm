@@ -1,1 +1,1 @@
-> "A golden cage is still just a cage." — Anita Krizzan
+> "Not all of us can do great things. But we can do small things with great love." — Mother Teresa
