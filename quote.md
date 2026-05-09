@@ -1,1 +1,1 @@
-> "Not all of us can do great things. But we can do small things with great love." — Mother Teresa
+> "Intelligence is the ability to adapt to change." — Stephen Hawking
