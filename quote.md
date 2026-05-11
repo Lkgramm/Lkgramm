@@ -1,1 +1,0 @@
-> "Great minds are always feared by lesser minds." — Dan Brown
