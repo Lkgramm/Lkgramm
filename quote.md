@@ -1,1 +1,1 @@
-> "Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live." — Nicolas Chamfort
+> "We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies." — Emily Dickinson
