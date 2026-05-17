@@ -1,1 +1,1 @@
-> "Animals don't hate, and we're supposed to be better than them." — Elvis Presley
+> "The search for happiness is one of the chief sources of unhappiness." — Eric Hoffer
