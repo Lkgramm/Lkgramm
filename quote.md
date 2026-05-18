@@ -1,1 +1,1 @@
-> "The search for happiness is one of the chief sources of unhappiness." — Eric Hoffer
+> "Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day." — Paulo Coelho
