@@ -1,1 +1,1 @@
-> "Failure is the key to success; each mistake teaches us something." — Morihei Ueshiba
+> "In the middle of chaos lies opportunity.  " — Bruce Lee
