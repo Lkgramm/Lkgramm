@@ -1,1 +1,1 @@
-> "In the middle of chaos lies opportunity.  " — Bruce Lee
+> "Be polite to all, but intimate with few." — Thomas Jefferson
