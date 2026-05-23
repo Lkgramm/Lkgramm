@@ -1,1 +1,1 @@
-> "Be polite to all, but intimate with few." — Thomas Jefferson
+> "Observe things as they are and don't pay attention to other people." — Huang Po
