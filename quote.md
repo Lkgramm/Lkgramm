@@ -1,1 +1,1 @@
-> "Observe things as they are and don't pay attention to other people." — Huang Po
+> "As mortals, we're ruled by conditions, not by ourselves." — Bodhidharma
