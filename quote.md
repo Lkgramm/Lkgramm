@@ -1,1 +1,1 @@
-> "As mortals, we're ruled by conditions, not by ourselves." — Bodhidharma
+> "The significance of life is living." — Jiddu Krishnamurti
