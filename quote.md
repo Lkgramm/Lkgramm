@@ -1,1 +1,1 @@
-> "Live in the sunshine, swim the sea, drink the wild air." — Ralph Waldo Emerson
+> "We're responsible for everything that happens to us." — Yanni
