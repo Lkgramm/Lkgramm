@@ -1,1 +1,1 @@
-> "We're responsible for everything that happens to us." — Yanni
+> "The traveler sees what he sees. The tourist sees what he has come to see." — Gilbert Chesterton
