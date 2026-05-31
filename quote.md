@@ -1,1 +1,1 @@
-> "Is it really possible to tell someone else what one feels?" — Leo Tolstoy
+> "Deeds will not be less valiant because they are upraised." — J.R.R. Tolkien
