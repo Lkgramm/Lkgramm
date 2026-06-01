@@ -1,1 +1,1 @@
-> "Deeds will not be less valiant because they are upraised." — J.R.R. Tolkien
+> "I have never let my schooling interfere with my education." — Mark Twain
