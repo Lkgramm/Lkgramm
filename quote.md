@@ -1,1 +1,1 @@
-> "Doing the best at this moment puts you in the best place for the next moment." — Oprah Winfrey
+> "Study logic and math, because once you've mastered them, you won't fear any book." — Naval Ravikant
