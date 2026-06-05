@@ -1,1 +1,1 @@
-> "Study logic and math, because once you've mastered them, you won't fear any book." — Naval Ravikant
+> "If you love life, don't waste time, for time is what life is made up of." — Bruce Lee
