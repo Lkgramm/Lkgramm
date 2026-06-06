@@ -1,1 +1,1 @@
-> "If you love life, don't waste time, for time is what life is made up of." — Bruce Lee
+> "If a man knows not to which port he sails, no wind is favorable." — Seneca
