@@ -1,1 +1,1 @@
-> "Fools read fast. Geniuses reread." — Maxime Lagace
+> "Whether you think you can or think you can't – you are right." — Henry Ford
