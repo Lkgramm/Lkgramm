@@ -1,1 +1,1 @@
-> "Whether you think you can or think you can't – you are right." — Henry Ford
+> "Some people dream of success, while others wake up and work hard at it." — Napoleon Hill
