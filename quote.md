@@ -1,1 +1,1 @@
-> "Some people dream of success, while others wake up and work hard at it." — Napoleon Hill
+> "The giving of love is an education in itself." — Eleanor Roosevelt
