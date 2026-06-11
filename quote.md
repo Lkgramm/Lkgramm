@@ -1,1 +1,0 @@
-> "The giving of love is an education in itself." — Eleanor Roosevelt
