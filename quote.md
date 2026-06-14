@@ -1,1 +1,1 @@
-> "Your setback is just a setup for a comeback." — Steve Harvey
+> "As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others." — Audrey Hepburn
