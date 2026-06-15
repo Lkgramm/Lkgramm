@@ -1,1 +1,1 @@
-> "As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others." — Audrey Hepburn
+> "The only time you run out of chances is when you stop taking them." — Unknown
