@@ -1,1 +1,1 @@
-> "The only time you run out of chances is when you stop taking them." — Unknown
+> "Take good advice, make sure it is good advice, then do it your way." — Vidal Sassoon
