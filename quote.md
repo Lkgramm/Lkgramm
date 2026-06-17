@@ -1,1 +1,1 @@
-> "Take good advice, make sure it is good advice, then do it your way." — Vidal Sassoon
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means." — Ronald Reagan
