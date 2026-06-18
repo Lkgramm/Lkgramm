@@ -1,1 +1,1 @@
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means." — Ronald Reagan
+> "To arrive at the simplest truth requires years of contemplation." — Isaac Newton
