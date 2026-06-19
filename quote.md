@@ -1,1 +1,1 @@
-> "To arrive at the simplest truth requires years of contemplation." — Isaac Newton
+> "Generosity is giving more than you can, and pride is taking less than you need." — Kahlil Gibran
