@@ -1,1 +1,1 @@
-> "Generosity is giving more than you can, and pride is taking less than you need." — Kahlil Gibran
+> "Do not try to be on the side of the majority, but live according to your inner laws." — Marcus Aurelius
