@@ -1,1 +1,1 @@
-> "Do not try to be on the side of the majority, but live according to your inner laws." — Marcus Aurelius
+> "Magic is believing in yourself, if you can do that, you can make anything happen." — Johann Wolfgang von Goethe
