@@ -1,1 +1,1 @@
-> "Do anything, but let it produce joy." — Walt Whitman
+> "Go for it now. The future is promised to no one." — Wayne Dyer
