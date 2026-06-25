@@ -1,1 +1,1 @@
-> "Go for it now. The future is promised to no one." — Wayne Dyer
+> "Do what you feel in your heart to be right - for you'll be criticized anyway." — Eleanor Roosevelt
