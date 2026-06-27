@@ -1,1 +1,1 @@
-> "I do not exist to impress the world. I exist to live my life in a way that will make me happy." — Richard Bach
+> "FOCUS - Follow One Course Until Successful" — Robert Kiyosaki
