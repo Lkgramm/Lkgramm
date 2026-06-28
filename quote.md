@@ -1,1 +1,0 @@
-> "FOCUS - Follow One Course Until Successful" — Robert Kiyosaki
