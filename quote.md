@@ -1,0 +1,1 @@
+> "Where words fail, music speaks." — Hans Christian Andersen
