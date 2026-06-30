@@ -1,1 +1,1 @@
-> "Where words fail, music speaks." — Hans Christian Andersen
+> "Tragedy is a tool for the living to gain wisdom, not a guide by which to live." — Robert F. Kennedy
