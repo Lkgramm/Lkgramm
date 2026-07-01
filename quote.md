@@ -1,1 +1,1 @@
-> "Tragedy is a tool for the living to gain wisdom, not a guide by which to live." — Robert F. Kennedy
+> "A poet should be so crafty with words that he is envied even for his pains." — Criss Jami
