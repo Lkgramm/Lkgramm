@@ -1,1 +1,1 @@
-> "A man with outward courage dares to die: a man with inner courage dares to live." — Lao Tzu
+> "The greatest doer must also be a great dreamer." — Theodore Roosevelt
