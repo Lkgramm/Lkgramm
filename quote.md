@@ -1,1 +1,1 @@
-> "The greatest doer must also be a great dreamer." — Theodore Roosevelt
+> "Abundance of knowledge does not teach men to be wise." — Heraclitus
