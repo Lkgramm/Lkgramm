@@ -1,1 +1,1 @@
-> "Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad." — Harry S. Truman
+> "Not everything that weighs you down is yours to carry." — Unknown
