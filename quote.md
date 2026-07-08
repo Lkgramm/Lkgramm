@@ -1,1 +1,1 @@
-> "Not everything that weighs you down is yours to carry." — Unknown
+> "Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence." — Sydney Smith
