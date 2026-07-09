@@ -1,1 +1,1 @@
-> "Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence." — Sydney Smith
+> "A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd." — Chinese Proverb
