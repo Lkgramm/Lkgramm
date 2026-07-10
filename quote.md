@@ -1,1 +1,1 @@
-> "A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd." — Chinese Proverb
+> "It is better to point out your own mistakes than have somebody else do it." — Warren Buffett
