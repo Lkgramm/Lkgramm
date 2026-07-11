@@ -1,1 +1,1 @@
-> "It is better to point out your own mistakes than have somebody else do it." — Warren Buffett
+> "The consequences of today are determined by the actions of the past. To change your future, alter your decisions today." — Unknown
