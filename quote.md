@@ -1,1 +1,1 @@
-> "The consequences of today are determined by the actions of the past. To change your future, alter your decisions today." — Unknown
+> "Others have seen what is and asked why. I have seen what could be and asked why not" — Pablo Picasso
