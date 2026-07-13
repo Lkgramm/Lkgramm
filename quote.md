@@ -1,1 +1,1 @@
-> "Others have seen what is and asked why. I have seen what could be and asked why not" — Pablo Picasso
+> "He who knows, does not speak. He who speaks, does not know." — Lao Tzu
