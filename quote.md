@@ -1,1 +1,1 @@
-> "He who knows, does not speak. He who speaks, does not know." — Lao Tzu
+> "Don't wait for extraordinary opportunities. Seize common occasions and make them great." — Orison Swett Marden
