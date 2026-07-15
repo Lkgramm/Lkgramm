@@ -1,1 +1,1 @@
-> "Don't wait for extraordinary opportunities. Seize common occasions and make them great." — Orison Swett Marden
+> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity." — Og Mandino
