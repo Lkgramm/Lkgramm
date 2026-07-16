@@ -1,1 +1,1 @@
-> "Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity." — Og Mandino
+> "Growth comes at the point of resistance." — Josh Waitzkin
