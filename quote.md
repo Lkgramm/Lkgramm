@@ -1,1 +1,1 @@
-> "Growth comes at the point of resistance." — Josh Waitzkin
+> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts." — Charles Darwin
