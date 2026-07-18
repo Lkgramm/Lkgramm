@@ -1,1 +1,1 @@
-> "My mind seems to have become a kind of machine for grinding general laws out of large collections of facts." — Charles Darwin
+> "Do you have the patience to wait until your mud settles and the water is clear?" — Lao Tzu
