@@ -1,1 +1,1 @@
-> "Do you have the patience to wait until your mud settles and the water is clear?" — Lao Tzu
+> "Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in." — Robert Greene
