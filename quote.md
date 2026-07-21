@@ -1,1 +1,1 @@
-> "Love is not about possession. Love is about appreciation." — Osho
+> "Silence is sometimes the best answer." — Dalai Lama
