@@ -1,1 +1,1 @@
-> "Silence is sometimes the best answer." — Dalai Lama
+> "Every experience is a lesson. Every loss is a gain." — Sathya Sai Baba
