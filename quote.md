@@ -1,1 +1,1 @@
-> "Every experience is a lesson. Every loss is a gain." — Sathya Sai Baba
+> "Truth is such a rare thing, it is delighted to tell it." — Emily Dickinson
