@@ -1,1 +1,1 @@
-> "Truth is such a rare thing, it is delighted to tell it." — Emily Dickinson
+> "Live simply, expect little, give much." — Norman Vincent Peale
