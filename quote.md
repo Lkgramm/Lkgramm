@@ -1,1 +1,1 @@
-> "Life may be full of pain but that's not an excuse to give up." — Arnold Schwarzenegger
+> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality." — James Cameron
