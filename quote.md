@@ -1,1 +1,1 @@
-> "Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality." — James Cameron
+> "Hardly anybody recognizes the most significant moments of their life at the time they happen." — W.P. Kinsella
