@@ -1,1 +1,1 @@
-> "Hardly anybody recognizes the most significant moments of their life at the time they happen." — W.P. Kinsella
+> "The meaning of life is just to be alive. It is so plain and so obvious and so simple." — Alan Watts
