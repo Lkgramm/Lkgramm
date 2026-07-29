@@ -1,1 +1,1 @@
-> "The meaning of life is just to be alive. It is so plain and so obvious and so simple." — Alan Watts
+> "The whole world is a series of miracles, but we're so used to them we call them ordinary things." — Hans Christian Andersen
