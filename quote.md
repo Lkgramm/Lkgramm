@@ -1,1 +1,1 @@
-> "The whole world is a series of miracles, but we're so used to them we call them ordinary things." — Hans Christian Andersen
+> "A man sees in the world what he carries in his heart." — Johann Wolfgang von Goethe
