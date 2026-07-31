@@ -1,1 +1,1 @@
-> "A man sees in the world what he carries in his heart." — Johann Wolfgang von Goethe
+> "We must cultivate our garden." — Voltaire
