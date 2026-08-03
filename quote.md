@@ -1,1 +1,1 @@
-> "Your very silence shows you agree." — Euripides
+> "Dream big and dare to fail." — Norman Vaughan
