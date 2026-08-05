@@ -1,1 +1,1 @@
-> "Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind." — Theodore Roosevelt
+> "Simple words, repeated daily, can change your life." — Maxime Lagace
