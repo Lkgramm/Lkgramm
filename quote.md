@@ -1,1 +1,1 @@
-> "Simple words, repeated daily, can change your life." — Maxime Lagace
+> "Do Something. If it works, do more of it. If it doesn't, do something else." — Franklin D. Roosevelt
