@@ -1,1 +1,1 @@
-> "Do Something. If it works, do more of it. If it doesn't, do something else." — Franklin D. Roosevelt
+> "Until we can manage time, we can manage nothing else." — Peter Drucker
