@@ -1,1 +1,1 @@
-> "Changing minds is harder than finding people who already agree." — Jack Butcher
+> "Success is getting what you want... Happiness is wanting what you get." — Dale Carnegie
