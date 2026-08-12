@@ -1,1 +1,1 @@
-> "The biggest room in the world is the room for improvement." — Unknown
+> "The more we value things, the less we value ourselves." — Bruce Lee
