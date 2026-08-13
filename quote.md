@@ -1,1 +1,1 @@
-> "The more we value things, the less we value ourselves." — Bruce Lee
+> "Your past does not equal your future." — Tony Robbins
