@@ -1,1 +1,1 @@
-> "Your past does not equal your future." — Tony Robbins
+> "Empty yourself of everything - let the mind become still." — Lao Tzu
