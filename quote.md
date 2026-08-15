@@ -1,1 +1,1 @@
-> "Empty yourself of everything - let the mind become still." — Lao Tzu
+> "You have the ability, now apply yourself." — Benjamin Mays
