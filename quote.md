@@ -1,1 +1,1 @@
-> "You have the ability, now apply yourself." — Benjamin Mays
+> "If we all did the things we are capable of doing, we would literally astound ourselves." — Thomas Edison
