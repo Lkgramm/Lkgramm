@@ -1,1 +1,1 @@
-> "If we all did the things we are capable of doing, we would literally astound ourselves." — Thomas Edison
+> "I was wise enough to never grow up while fooling most people into believing I had." — Margaret Mead
