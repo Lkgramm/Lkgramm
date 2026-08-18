@@ -1,1 +1,1 @@
-> "I was wise enough to never grow up while fooling most people into believing I had." — Margaret Mead
+> "Time and health are two precious assets that we don't recognize and appreciate until they have been depleted." — Denis Waitley
