@@ -1,1 +1,1 @@
-> "Time and health are two precious assets that we don't recognize and appreciate until they have been depleted." — Denis Waitley
+> "You are not what you think you are, You are not what others think you are, You are what you think others think you are." — Unknown
