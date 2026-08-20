@@ -1,1 +1,1 @@
-> "You are not what you think you are, You are not what others think you are, You are what you think others think you are." — Unknown
+> "You can have everything in life you want if you will just help enough other people get what they want." — Zig Ziglar
