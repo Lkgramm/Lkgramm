@@ -1,1 +1,1 @@
-> "You can have everything in life you want if you will just help enough other people get what they want." — Zig Ziglar
+> "I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves." — Steve Maraboli
