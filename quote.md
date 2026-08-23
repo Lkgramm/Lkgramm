@@ -1,1 +1,1 @@
-> "Change is never easy, but always possible." — Barack Obama
+> "Problems remain as problems because people are busy defending them rather than finding solutions." — Celestine Chua
