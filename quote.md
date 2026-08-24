@@ -1,1 +1,1 @@
-> "Problems remain as problems because people are busy defending them rather than finding solutions." — Celestine Chua
+> "It's always to soon to quit!" — Norman Vincent Peale
