@@ -1,1 +1,1 @@
-> "Use your smile to change the world but don't let the world change your smile." — Unknown
+> "The difference between winning and losing is most often not quitting." — Walt Disney
