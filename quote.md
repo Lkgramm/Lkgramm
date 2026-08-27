@@ -1,1 +1,1 @@
-> "The difference between winning and losing is most often not quitting." — Walt Disney
+> "Realize deeply that the present moment is all you ever have." — Eckhart Tolle
