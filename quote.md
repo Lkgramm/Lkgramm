@@ -1,1 +1,1 @@
-> "Realize deeply that the present moment is all you ever have." — Eckhart Tolle
+> "Excellence is not a skill. It is an attitude." — Ralph Marston
