@@ -1,1 +1,1 @@
-> "Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway." — Earl Nightingale
+> "Work as though you would live forever, and live as though you would die today. Go another mile." — Og Mandino
