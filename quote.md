@@ -1,1 +1,1 @@
-> "Work as though you would live forever, and live as though you would die today. Go another mile." — Og Mandino
+> "What the mind can conceive, it can achieve." — Napoleon Hill
