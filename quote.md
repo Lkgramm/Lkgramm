@@ -1,1 +1,1 @@
-> "Be gentle with yourself. Think less and feel more. Be as happy as you can. You only have this moment." — Dan Millman
+> "If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form." — Paramahansa Yogananda
