@@ -1,1 +1,1 @@
-> "If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form." — Paramahansa Yogananda
+> "To get angry is like to revenge yourself for the guilt of others." — Jonathan Swift
