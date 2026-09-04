@@ -1,1 +1,1 @@
-> "To get angry is like to revenge yourself for the guilt of others." — Jonathan Swift
+> "Words have no power to impress the mind without the exquisite horror of their reality." — Edgar Allan Poe
