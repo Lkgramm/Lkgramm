@@ -1,1 +1,1 @@
-> "Words have no power to impress the mind without the exquisite horror of their reality." — Edgar Allan Poe
+> "Pleasure in the job puts perfection in the work." — Aristotle
