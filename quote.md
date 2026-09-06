@@ -1,1 +1,1 @@
-> "Pleasure in the job puts perfection in the work." — Aristotle
+> "We must accept finite disappointment, but never lose infinite hope." — Martin Luther King, Jr.
