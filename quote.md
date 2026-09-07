@@ -1,1 +1,1 @@
-> "We must accept finite disappointment, but never lose infinite hope." — Martin Luther King, Jr.
+> "The one who praises you is a thief. The one who criticizes you is your true friend." — Seungsahn
