@@ -1,1 +1,1 @@
-> "The one who praises you is a thief. The one who criticizes you is your true friend." — Seungsahn
+> "Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain." — Kabir
