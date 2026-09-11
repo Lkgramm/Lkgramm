@@ -1,1 +1,1 @@
-> "Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service." — Earl Nightingale
+> "That some achieve great success is proof to all that others can achieve it as well." — Abraham Lincoln
