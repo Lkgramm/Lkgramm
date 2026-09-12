@@ -1,1 +1,1 @@
-> "That some achieve great success is proof to all that others can achieve it as well." — Abraham Lincoln
+> "When the world pushes you to your knees, you're in the perfect position to pray." — Rumi
