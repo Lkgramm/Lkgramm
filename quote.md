@@ -1,1 +1,1 @@
-> "When the world pushes you to your knees, you're in the perfect position to pray." — Rumi
+> "The way out is in." — Thich Nhat Hanh
