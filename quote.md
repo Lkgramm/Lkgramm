@@ -1,1 +1,1 @@
-> "The way out is in." — Thich Nhat Hanh
+> "A day without laughter is a day wasted." — Charlie Chaplin
