@@ -1,1 +1,1 @@
-> "A day without laughter is a day wasted." — Charlie Chaplin
+> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength." — Criss Jami
