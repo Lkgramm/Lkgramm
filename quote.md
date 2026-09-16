@@ -1,1 +1,1 @@
-> "To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength." — Criss Jami
+> "Be gentle with yourself. Think less and feel more. Be as happy as you can. You only have this moment." — Dan Millman
