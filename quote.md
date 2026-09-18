@@ -1,1 +1,1 @@
-> "As you love yourself, life loves you back." — Kamal Ravikant
+> "Silence is a source of great strength." — Lao Tzu
