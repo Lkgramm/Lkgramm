@@ -1,1 +1,1 @@
-> "Silence is a source of great strength." — Lao Tzu
+> "When a man is penalized for honesty he learns to lie." — Criss Jami
