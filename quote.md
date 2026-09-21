@@ -1,1 +1,1 @@
-> "Each problem has a positive side." — Og Mandino
+> "As mortals, we're ruled by conditions, not by ourselves." — Bodhidharma
