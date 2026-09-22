@@ -1,1 +1,1 @@
-> "As mortals, we're ruled by conditions, not by ourselves." — Bodhidharma
+> "True friendship ought never to conceal what it thinks." — St. Jerome
