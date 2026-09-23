@@ -1,1 +1,1 @@
-> "True friendship ought never to conceal what it thinks." — St. Jerome
+> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us." — Thich Nhat Hanh
