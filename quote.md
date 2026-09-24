@@ -1,1 +1,1 @@
-> "Nothing can survive without food. Everything we consume acts either to heal us or to poison us." — Thich Nhat Hanh
+> "Every moment of happiness requires a great amount of Ignorance" — Honore de Balzac
