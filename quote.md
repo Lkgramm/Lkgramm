@@ -1,1 +1,1 @@
-> "Every moment of happiness requires a great amount of Ignorance" — Honore de Balzac
+> "It is truth that liberates, not your effort to be free." — Jiddu Krishnamurti
