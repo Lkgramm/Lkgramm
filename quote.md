@@ -1,1 +1,1 @@
-> "It is truth that liberates, not your effort to be free." — Jiddu Krishnamurti
+> "I am not the outcome. I am never the result. I am only the effort." — Kamal Ravikant
