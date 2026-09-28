@@ -1,1 +1,1 @@
-> "Animals don't hate, and we're supposed to be better than them." — Elvis Presley
+> "It is our choices that show what we truly are, far more than our abilities." — Albus Dumbledore
