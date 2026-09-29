@@ -1,1 +1,1 @@
-> "It is our choices that show what we truly are, far more than our abilities." — Albus Dumbledore
+> "If you want to find the secrets of the universe, think in terms of energy, frequency and vibration." — Nikola Tesla
