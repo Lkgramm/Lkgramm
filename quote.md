@@ -1,1 +1,1 @@
-> "Happiness is the spiritual experience of living every minute with love, grace and gratitude." — Denis Waitley
+> "Incredible change happens in your life when you decide to take control of what you do have power over instead of craving control over what you don't." — Steve Maraboli
