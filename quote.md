@@ -1,1 +1,1 @@
-> "Every experience is a lesson. Every loss is a gain." — Sathya Sai Baba
+> "Absorb what is useful, discard what is useless and add what is specifically your own." — Bruce Lee
