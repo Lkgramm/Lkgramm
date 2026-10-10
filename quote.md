@@ -1,1 +1,1 @@
-> "Don't spend time beating on a wall, hoping to transform it into a door." — Coco Chanel
+> "It is often safer to be in chains than to be free." — Franz Kafka
