@@ -1,1 +1,1 @@
-> "It is often safer to be in chains than to be free." — Franz Kafka
+> "The single most powerful asset we all have is our mind." — Robert Kiyosaki
