@@ -1,1 +1,1 @@
-> "The single most powerful asset we all have is our mind." — Robert Kiyosaki
+> "Being an intellectual creates a lot of questions and no answers." — David Brinkley
