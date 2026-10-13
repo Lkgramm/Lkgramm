@@ -1,1 +1,1 @@
-> "Being an intellectual creates a lot of questions and no answers." — David Brinkley
+> "Waste not fresh tears over old griefs." — Euripides
