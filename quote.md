@@ -1,1 +1,1 @@
-> "Be grateful for what you have now, and nothing should be taken for granted." — Roy T. Bennett
+> "Never settle for the crumbs of life." — Og Mandino
