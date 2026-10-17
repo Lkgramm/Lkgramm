@@ -1,1 +1,1 @@
-> "In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result." — James Allen
+> "Instead of worrying about what you cannot control, shift your energy to what you can create." — Roy T. Bennett
