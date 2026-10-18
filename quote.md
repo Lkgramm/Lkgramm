@@ -1,1 +1,1 @@
-> "Instead of worrying about what you cannot control, shift your energy to what you can create." — Roy T. Bennett
+> "Don't think money does everything or you are going to end up doing everything for money." — Voltaire
