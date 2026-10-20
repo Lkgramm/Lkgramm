@@ -1,1 +1,1 @@
-> "Success comes to those who become success conscious." — Napoleon Hill
+> "The impossible can always be broken down into possibilities." — Unknown
