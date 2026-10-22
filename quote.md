@@ -1,1 +1,1 @@
-> "In the beginner's mind there are many possibilities, but in the expert's mind there are few." — Shunryu Suzuki
+> "Success is getting what you want... Happiness is wanting what you get." — Dale Carnegie
