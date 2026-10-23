@@ -1,1 +1,1 @@
-> "Success is getting what you want... Happiness is wanting what you get." — Dale Carnegie
+> "Pain doesn't last. And when it's gone, we have something to show for it. Growth." — Kamal Ravikant
