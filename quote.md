@@ -1,1 +1,1 @@
-> "Pain doesn't last. And when it's gone, we have something to show for it. Growth." — Kamal Ravikant
+> "Nothing we see or hear is perfect. But right there in the imperfection is perfect reality." — Shunryu Suzuki
