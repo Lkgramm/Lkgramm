@@ -1,1 +1,1 @@
-> "Nothing we see or hear is perfect. But right there in the imperfection is perfect reality." — Shunryu Suzuki
+> "Lying can never save us from another lie." — Vaclav Havel
