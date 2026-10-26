@@ -1,1 +1,1 @@
-> "Lying can never save us from another lie." — Vaclav Havel
+> "Friendship is one of the most tangible things in a world which offers fewer and fewer supports." — Kenneth Branagh
