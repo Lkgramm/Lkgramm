@@ -1,1 +1,1 @@
-> "Friendship is one of the most tangible things in a world which offers fewer and fewer supports." — Kenneth Branagh
+> "What is planted in each person's soul will sprout." — Rumi
