@@ -1,1 +1,1 @@
-> "Conscience is a man's compass." — Vincent van Gogh
+> "When you repeat a mistake, it is not a mistake anymore: it is a decision." — Paulo Coelho
