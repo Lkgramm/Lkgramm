@@ -1,1 +1,1 @@
-> "When you repeat a mistake, it is not a mistake anymore: it is a decision." — Paulo Coelho
+> "The wise speak only of what they know." — J.R.R. Tolkien
