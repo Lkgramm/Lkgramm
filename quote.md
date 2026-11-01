@@ -1,1 +1,1 @@
-> "The wise speak only of what they know." — J.R.R. Tolkien
+> "You are now, and you do become, what you think about." — Earl Nightingale
