@@ -1,1 +1,1 @@
-> "You are now, and you do become, what you think about." — Earl Nightingale
+> "Everyday you can take a tiny step in the right direction." — Unknown
