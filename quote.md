@@ -1,1 +1,1 @@
-> "Everyday you can take a tiny step in the right direction." — Unknown
+> "Definiteness of purpose is the starting point of all achievement." — W. Clement Stone
