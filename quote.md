@@ -1,1 +1,1 @@
-> "Success is about creating value." — Candice Carpenter
+> "How you think when you lose determines how long it will be until you win." — Gilbert Chesterton
