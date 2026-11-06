@@ -1,1 +1,1 @@
-> "How you think when you lose determines how long it will be until you win." — Gilbert Chesterton
+> "Success is good at any age, but the sooner you find it, the longer you will enjoy it." — Napoleon Hill
