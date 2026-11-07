@@ -1,1 +1,1 @@
-> "Success is good at any age, but the sooner you find it, the longer you will enjoy it." — Napoleon Hill
+> "What people say, what people do, and what they say they do are entirely different things." — Margaret Mead
