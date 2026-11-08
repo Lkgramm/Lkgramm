@@ -1,1 +1,1 @@
-> "What people say, what people do, and what they say they do are entirely different things." — Margaret Mead
+> "It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime." — Steve Maraboli
