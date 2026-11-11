@@ -1,1 +1,1 @@
-> "Only those who will risk going too far can possibly find out how far one can go." — T.S. Eliot
+> "Nothing is permanent in this wicked world - not even our troubles." — Charlie Chaplin
