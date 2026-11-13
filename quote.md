@@ -1,1 +1,1 @@
-> "Life is too important to be taken seriously." — Oscar Wilde
+> "We shape clay into a pot, but it is the emptiness inside that holds whatever we want." — Lao Tzu
