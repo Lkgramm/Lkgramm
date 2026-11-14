@@ -1,1 +1,1 @@
-> "We shape clay into a pot, but it is the emptiness inside that holds whatever we want." — Lao Tzu
+> "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy." — Sun Tzu
