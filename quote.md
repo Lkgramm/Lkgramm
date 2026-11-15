@@ -1,1 +1,1 @@
-> "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy." — Sun Tzu
+> "The single biggest problem in communication is the illusion that it has taken place." — George Bernard Shaw
