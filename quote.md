@@ -1,1 +1,1 @@
-> "The single biggest problem in communication is the illusion that it has taken place." — George Bernard Shaw
+> "It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has." — Henry Ward Beecher
