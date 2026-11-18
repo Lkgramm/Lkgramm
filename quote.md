@@ -1,1 +1,1 @@
-> "We are all self-made, but only the successful will admit it." — Earl Nightingale
+> "Not all readers are leaders, but all leaders are readers." — Harry S. Truman
