@@ -1,1 +1,0 @@
-> "Not all readers are leaders, but all leaders are readers." — Harry S. Truman
