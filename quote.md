@@ -1,1 +1,1 @@
-> "The best way out is always through." — Robert Frost
+> "Nothing in this universe occurs by accident." — Neale Donald Walsch
