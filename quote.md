@@ -1,1 +1,1 @@
-> "The only way out is through." — Robert Frost
+> "Confidence comes not from always being right but not fearing to be wrong." — Unknown
