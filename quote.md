@@ -1,1 +1,1 @@
-> "If you believe you can, you can. If you believe you can't, then, well you can't." — Celestine Chua
+> "Happiness is the absence of the striving for happiness." — Zhuangzi
