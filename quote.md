@@ -1,1 +1,1 @@
-> "Happiness is the absence of the striving for happiness." — Zhuangzi
+> "Doubt is an uncomfortable condition, but certainty is a ridiculous one." — Voltaire
